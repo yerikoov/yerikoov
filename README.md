@@ -6,6 +6,5 @@
 ## •Bot Assistant [**Hinata Kisaragi**](https://discord.com/oauth2/authorize?client_id=1359771321160171531)
 ## My Messengers:
 ### •[Telegram](https://t.me/yerikoov)
-### •[Instagram](https://instagram.com/yerikoov)
 ### •[Discord Server](https://discord.gg/2qMrVJfP5a)
 
