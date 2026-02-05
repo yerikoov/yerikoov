@@ -5,6 +5,6 @@
 ## 𝙿𝚢𝚝𝚑𝚘𝚗 𝙳𝚎𝚟𝚎𝚕𝚘𝚙𝚎𝚛🐍
 ## •Bot Assistant [**Hinata Kisaragi**](https://discord.com/oauth2/authorize?client_id=1359771321160171531)
 ## My Messengers:
-### •[Telegram](https://t.me/yerikoov)
+### •[Telegram](https://t.me/yerikovEZZ)
 ### •[Discord Server](https://discord.gg/2qMrVJfP5a)
 
