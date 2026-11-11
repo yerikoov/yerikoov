@@ -16,7 +16,7 @@ Building AI products on my own. Coding since 8th grade, now studying at [inVisio
 - Investly Hub incubator: built a product in 2 weeks, reached demo day among 30 projects
 - Discord bot running on 100+ servers
 - Founded an IT community server (~120 members)
-- Featured on Qazaqstan TV
+- Featured on [Qazaqstan TV](https://qazaqstan.tv/news/225367)
 
 ## Stack
 
